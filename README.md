@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding ect :p
 - 🌱
   
-- 💞️ I’m looking to collaborate on ...
+- 💞️ 
 - 📫 I'm currently available on Tweet!, Tiktok and Instagram!
 
 <!---
